@@ -1,1 +1,2 @@
-# plum-cake
+# PLUM CAKE
+Rich Plum Cake, a German dessert recipe that has the goodness of a variety of dry fruits. This delicious cake is prepared by soaking raisins, cashews, walnuts, figs, dates and tutti-frutti in a concoction of rum and red wine. While the nuts are soaked, the wonderful flavours of these drinks get absorbed in them.
